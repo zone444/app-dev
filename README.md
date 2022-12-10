@@ -8,6 +8,6 @@
 [**Love Live**](https://en.wikipedia.org/wiki/Love_Live!)
 2. The nine girls strive to save their school from closing by trying to attract perspective students through the formation of a school idol group that, they hope, will one day be a part of Love Live. Honoka Kousaka leads her group of eight other cute, talented high school friends towards Love Live. The anime Love Live!
 
->Rojo,Yngwie
+>Rojo, Yngwie
 [**Alice in Borderland**](https://en.wikipedia.org/wiki/Alice_in_Borderland_(TV_series))
 3. Based on the popular manga written and illustrated by Haro Aso, the action drama follows a group of friends who are transported to a parallel dimension called the Borderlands. To get out alive, they must compete in a series of deadly games that puts their friendships to the test.
