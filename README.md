@@ -1,4 +1,4 @@
-# Informations about my favorite movies
+# Informations About Our Favorite Movies
 
 >Gatdula, Jelmar
 [**Django Unchained**](https://en.wikipedia.org/wiki/Django_Unchained) 
